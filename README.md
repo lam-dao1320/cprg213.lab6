@@ -1,0 +1,1 @@
+# lamdao.lab6
